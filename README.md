@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on languages development
 - E-mail: nayinganyikigenereuse@gmail.com
-- 😄 Am a planned dauguter
+- 😄 I'm a girl
 - ⚡ Fun fact; I lead
 
 <!---
